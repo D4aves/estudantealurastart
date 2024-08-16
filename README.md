@@ -12,5 +12,3 @@ Você pode entrar em contato comigo 📫
 00001123045707sp@al.educacao.sp.gov.br
 
 @alurastartestudante
-
-![](https://tenor.com/br8Im.gif)
